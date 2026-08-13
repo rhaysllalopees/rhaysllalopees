@@ -56,8 +56,8 @@ Em breve, este perfil contará com projetos desenvolvidos durante minha jornada 
 
 Estou sempre aberta a aprender, trocar experiências e compartilhar minha evolução na programação.
 
-* 💼 LinkedIn: *Adicione seu perfil*
-* 📧 E-mail: *Adicione seu e-mail*
+* 💼 LinkedIn: [Rhayslla Lopes](https://linkedin.com)
+* 📧 E-mail: rhaysllalpss@gmail.com
 
 ---
 
